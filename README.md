@@ -1,1 +1,0 @@
-# yngel-love-corner
